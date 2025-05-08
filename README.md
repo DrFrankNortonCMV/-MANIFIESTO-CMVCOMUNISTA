@@ -1,4 +1,4 @@
-# 📕 -MANIFIESTO-CMVCOMUNISTA
+# 📕 - MANIFIESTO-CMVCOMUNISTA
 
 📕 MANIFIESTO CMVCOMUNISTA
 (Cristo, Marx y Víctor – pero ateo, revolucionario y con mucha hambre)
